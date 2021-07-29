@@ -1,1 +1,1 @@
-# Rehide-Smart.github.io
+Smart Home By AndrewsTech.
